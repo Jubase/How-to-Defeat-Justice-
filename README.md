@@ -1,2 +1,2 @@
-# jubase55-
-How to Defeat Justice 
+
+This is about a scam where some where some members of the community together with few public officials worked together to illegally disposes and arrest Sakhumzi jubase for false allegations of callable homicide. Documents such as  the false postmortem  from a forensic pathology were attached in the docket. A toy or doll was used to depict a child. The same toy or doll was declared dead by some officials  and a false criminal case was registered against sakhumzi jubase and his car was seized as evidence since 1st of November 2018 until today. 
